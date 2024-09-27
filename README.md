@@ -1,2 +1,2 @@
 # Wohicv
-Imaginary cv by jjjasminl
+Imaginary cv by jjjasminl 2024
